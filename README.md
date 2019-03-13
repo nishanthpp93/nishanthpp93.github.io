@@ -1,2 +1,2 @@
-# nishanthpp93.github.io
+# Nishanth Parameshwar Pavinkurve
 Personal website
